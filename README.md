@@ -4,3 +4,4 @@ When u extract it u gotta open ROBLOX any game and run the File.
 If it dont Launch Reboot ur PC.
 To activate it press ~
 LEAVE A STAR 🙂
+https://discord.gg/wv9WQYHb
